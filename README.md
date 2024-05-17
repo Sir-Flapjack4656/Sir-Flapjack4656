@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Sir-Flapjack4656
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning HTML/CSS and Javascript, Python, and everything in game modding/development 
+- 📫 How to reach me Email me at sirflapjackd1@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like Cats
